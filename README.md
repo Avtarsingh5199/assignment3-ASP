@@ -8,6 +8,7 @@ I thought to start from scratch but it would have taken few days.I already waste
 After a lot of attempts, i became successful in connecting everything and started my 3rd assignment with the help of your videos.
 Still, it took me more than 1 and half day.
 i know it's wrong but i made few changes, i think i can get some marks instead of 0
+I have seen all three videoa and understood nearly everything. if you want i can explain it
 
 thank you
 
